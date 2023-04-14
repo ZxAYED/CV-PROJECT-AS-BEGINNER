@@ -1,2 +1,2 @@
-# CV-PROJECT-AS-BEGINNER
+# created cv as a beginner
 FIRST EVER 
